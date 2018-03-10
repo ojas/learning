@@ -1,5 +1,7 @@
 # What Does It Take to Change Peoples Mind
 
+<img src="https://user-images.githubusercontent.com/51803/37245624-bdaf180c-2460-11e8-8f05-5f4068c96fb6.JPG">
+
 - Habboo zainyh
 - Slezak jslez, Swayable
 - Weitzman PinkyWeitzman, ACLU - Not partisan ie we’ve sued every president, Quadrupled our membership, 4M followers
